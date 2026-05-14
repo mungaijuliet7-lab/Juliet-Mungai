@@ -1,4 +1,4 @@
-Juliet Mungai
+
 Hi, I'm Juliet Wangari
 Customer service professional who loves helping people feel heard and valued. With 3+ years across BPO and contact centre roles, I bring consistency, empathy, and genuine care to every interaction.
 I work with Monday.com CRM, MyCase, Microsoft Office, and Google Workspace — and I'm experienced in inbound & outbound call handling, complaint resolution, cold calling, and remote collaboration.
